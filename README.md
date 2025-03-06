@@ -1,1 +1,0 @@
-# DEPI-Creative-minds
